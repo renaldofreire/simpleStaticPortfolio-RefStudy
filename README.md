@@ -1,0 +1,1 @@
+simpleStaticPortfolio-RefStudy
